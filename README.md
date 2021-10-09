@@ -14,4 +14,4 @@ BLACK OPS COLD WAR :
 
 VANGUARD : 
 -------------------------
-Beta002 : 
+Beta002 : https://mega.nz/file/IA1WharJ#aFLdHmBTibq4JCdvIoiiTXofdwMgZhT5ZMqr8CLzMDE
