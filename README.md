@@ -1,5 +1,5 @@
 # DUMP-CW-MW
-DUMP CALL OF DUTY MODERN WARFARE / BLACK OPS COLD WAR / VANGUARD
+DUMP CALL OF DUTY 
 ---------------------------------------------------------------------------
 
 MODERN WARFARE : 
